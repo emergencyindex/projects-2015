@@ -16,7 +16,7 @@ Ablinger, Peter [345]
 
 aboriginal community _see_ indigenous people
 
-Abramovic´, Marina [327]
+Abramović´, Marina [327]
 
 absence [121], [149], [171], [319], [343]
 
